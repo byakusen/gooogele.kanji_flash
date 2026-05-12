@@ -1,0 +1,1 @@
+# gooogele.kanji_flash
